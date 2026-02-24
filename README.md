@@ -1,1 +1,1 @@
-![kangel](https://github.com/user-attachments/assets/0b485cd8-63e3-41de-bfcd-ffb4ffa6641a)
+![kangel](https://github.com/user-attachments/assets/832ad74a-b0f5-426a-babf-dc7e20c03b83)
