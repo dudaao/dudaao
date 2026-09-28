@@ -1,1 +1,1 @@
-![sumikkogurashi](https://media.tenor.com/rtsCU5b5zVUAAAAj/tokage-sunny-tokage.gif)
+![sumikkogurashi](https://media.tenor.com/UWPhmyO5GCQAAAAj/sumikko-gurashi.gif)
